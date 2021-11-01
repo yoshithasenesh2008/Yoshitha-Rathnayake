@@ -1,6 +1,6 @@
 # <b><i>Yoshitha Rathnayake</i></b>
-# <img src="Yoshitha Rathnayake 2.png" height="250px">
-<a href="https://github.com/yoshitharathnayake2008">@yoshitharathnayake2008<a>
+# <img src="Yoshitha Rathnayake 1.png" height="250px">
+<a href="https://github.com/yoshithasenesh2008">@yoshithasenesh2008<a>
 
 > Hi, I am Yoshitha Rathnayake. This is my personal portfolio. 
 
@@ -61,11 +61,11 @@
   
 > Phone Number :- <b><i>+94767073488</i></b>
   
-> Email :- <a href="https://mail.google.com/mail/u/0/?fs=1&to=yoshithabandara2008@gmail.com&tf=cm" ><b><i>yoshithabandara2008@gmail.com</i></b></a>
+> Email :- <a href="https://mail.google.com/mail/u/0/?fs=1&to=yoshithasenesh2008@gmail.com&tf=cm" ><b><i>yoshithasenesh2008@gmail.com</i></b></a>
   
   
 # Follow Me  
   
   
-<a href=" https://chat.whatsapp.com/KRqihLP7J7HEpM2dL6Zwt9" ><img src="https://img.icons8.com/color/48/000000/whatsapp--v1.png" alt="Whatsapp Icon" /></a>    <a href="https://t.me/joinchat/hP-WbTXCf185YTg1" ><img src="https://img.icons8.com/color/48/000000/telegram-app--v1.png" alt="Telegram Icon" /></a>   <a href="https://github.com/YoshithaRathnayake" ><img src="https://img.icons8.com/fluency/48/000000/github.png" alt="GitHub Icon" /></a>    <a href="https://gitlab.com/YoshithaRathnayake" ><img src="https://img.icons8.com/color/48/000000/gitlab.png" alt="GitLab Icon"/></a>    <a href="https://twitter.com/YoshithaSenesh" ><img src="https://img.icons8.com/color/48/000000/twitter-circled--v1.png" alt="Twitter Icon" /></a>     <a href="https://www.instagram.com/yoshitha_rathnayake/" ><img src="https://img.icons8.com/color/48/000000/instagram-new.png" alt="Instagram Icon" /></a>    
+<a href=" https://chat.whatsapp.com/KRqihLP7J7HEpM2dL6Zwt9" ><img src="https://img.icons8.com/color/48/000000/whatsapp--v1.png" alt="Whatsapp Icon" /></a>    <a href="https://t.me/joinchat/hP-WbTXCf185YTg1" ><img src="https://img.icons8.com/color/48/000000/telegram-app--v1.png" alt="Telegram Icon" /></a>   <a href="https://github.com/yoshithasenesh2008" ><img src="https://img.icons8.com/fluency/48/000000/github.png" alt="GitHub Icon" /></a>    <a href="https://gitlab.com/YoshithaRathnayake2008" ><img src="https://img.icons8.com/color/48/000000/gitlab.png" alt="GitLab Icon"/></a>    <a href="https://twitter.com/YoshithaSenesh" ><img src="https://img.icons8.com/color/48/000000/twitter-circled--v1.png" alt="Twitter Icon" /></a>     <a href="https://www.instagram.com/yoshitha_rathnayake/" ><img src="https://img.icons8.com/color/48/000000/instagram-new.png" alt="Instagram Icon" /></a>    
 
